@@ -13,3 +13,8 @@ Donc souhaites moi bonne chance.
 
 Maurice la banane
 Je sais pas quoi dire
+
+
+
+Maurice la saucisse
+C'est le bordel hje comprends pas trop
